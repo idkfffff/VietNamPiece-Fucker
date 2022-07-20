@@ -1,2 +1,0 @@
-# VietNamPiece-Fucker
-stupid
